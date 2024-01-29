@@ -22,7 +22,7 @@ Our organization serves as a hub for research, discussion, and development of AI
 
 ## Getting Started
 
-🚀 If you're interested in contributing to this cause, send a direct message to our page on [Reconnextion Community](https://x.com/reconnextion) for collaboration opportunities. We're always looking for passionate individuals to join our mission in reshaping AI communication.
+🚀 If you're interested in contributing to this cause, send a direct message to our page on [Reconnextion community](https://x.com/reconnextion) for collaboration opportunities. We're always looking for passionate individuals to join our mission in reshaping AI communication.
 
 ## What Inspires Us
 
